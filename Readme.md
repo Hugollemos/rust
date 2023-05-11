@@ -1,0 +1,1 @@
+Eu aprendi que todos querem viver no topo da montanha, mas toda felicidade e crescimento ocorre quando você a está escalando. H. Jackson Brown Jr BROWN, H. J.
